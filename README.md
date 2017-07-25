@@ -5,10 +5,14 @@ Suicide is devastating, and it affects everyone touched by it. Here are some var
 # Stories
 
 Kevin Dietl - http://news.stlpublicradio.org/post/after-losing-med-student-son-suicide-chesterfield-parents-turn-advocacy#stream/0
+
 Dr Andrew Bryant - http://www.stuff.co.nz/world/australia/92501003/Wife-of-Australia-doctor-writes-letter-about-his-suicide-to-show-we-re-not-ashamed https://ericlevi.com/2017/05/13/the-dark-side-of-doctoring/
+
 Aaron Swartz https://en.wikipedia.org/wiki/Aaron_Swartz
+
 Will H Moore https://willopines.wordpress.com/2017/04/19/punched-out/
-Francis Dolan http://personal.maths.surrey.ac.uk/st/M.Wolf/conferences/dolan/fadolan.html (perspective http://backreaction.blogspot.com/2015/06/the-plight-of-postdocs-academia-and.html)
+
+Francis Dolan http://personal.maths.surrey.ac.uk/st/M.Wolf/conferences/dolan/fadolan.html  http://backreaction.blogspot.com/2015/06/the-plight-of-postdocs-academia-and.html
 
 # Controversy
 
